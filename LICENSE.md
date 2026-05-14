@@ -1,4 +1,4 @@
-# 
+# Enhance Sketch for macOS with Sketch for macOS exclusive Plugin: cloud sync & layer styles, the #1 plugin. Includes cloud sync and layer styles for a smoother and more creative
 
 
 
